@@ -1,4 +1,4 @@
-# [Név]
+# [Kállai Bertalan Gábor]
 
 
 ## Hogyan kezdj neki?
